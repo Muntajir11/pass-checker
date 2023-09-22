@@ -1,1 +1,2 @@
-![image](https://github.com/Muntajir11/pass-checker/assets/91109805/ab337df0-58a3-41ae-b020-8c39bf54c683)
+https://github.com/Muntajir11/pass-checker/assets/91109805/c016ef3d-9430-4d7a-bbf5-f95e63315e27
+
